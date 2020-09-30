@@ -1,1 +1,1 @@
-# Srutismita-Naik.greatLearning-Assignment
+# greatLearning-Assignment
